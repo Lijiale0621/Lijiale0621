@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Lijiale0621
-- 👀 I’m interested in animation
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on everyone
 - 📫 How to reach me lijiale0621@gmail.com
